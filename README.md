@@ -1,6 +1,6 @@
 # 🏐 Planilha Liga das Nações de Volei Masculino VNL – 2026
 
-***Atualizada** *
+***Atualizada** Semana 1*
 
 Esta planilha contém informações e recursos relacionados à VNL Masculina 2026.
 
